@@ -6,6 +6,6 @@
 
 Quero conseguir criar diversos projetos interessantes e legais para as pessoas.
 
-Eu sou uma pessoa um pouco ruim com criar coisas muito realistas, mas espero que você possa se divertir com meus projetos.
+Eu sou uma pessoa um pouco ruim em criar coisas muito realistas, mas espero que você possa se divertir com meus projetos.
 
 ![](https://media1.tenor.com/m/ywTlfRcrKHQAAAAC/tatsumi.gif)
